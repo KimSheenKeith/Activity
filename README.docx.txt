@@ -1,1 +1,1 @@
-Kassandra and Sheen
+Kassandra Mije and Sheen Kim
